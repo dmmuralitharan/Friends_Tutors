@@ -53,7 +53,7 @@ Accessing the App:
 
 ## Support
 
-For support, email dmmuralitharan@gmail.com.
+For support, email dmmuralitharan@gmail.com. and m.naveenkumarmunees@gmail.com
 
 
 ## Collaborators
